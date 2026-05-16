@@ -1,4 +1,4 @@
-# 
+# instant NFT Wash Trading Bot for opensea sniper bot | private-RPC-nodes & multi-chain-support offers the most advanced opensea sniper bot, with private-RPC-nodes and
 
 
 
